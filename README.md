@@ -1,1 +1,1 @@
-# Dolgozat
+Pankotai Zsolt
